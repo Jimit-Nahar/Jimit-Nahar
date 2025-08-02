@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jimit-Nahar
-- 📫 To reach me jimit.nahar@gmail.com
+- 📫 To reach me jimit.nahar@gmail.com OR Discord - jimjam107
 
 <!---
 Jimit-Nahar/Jimit-Nahar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
